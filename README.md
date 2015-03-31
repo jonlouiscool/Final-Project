@@ -3,7 +3,6 @@
 The beginning of the idea of what scholars think about video games in history
 
 
-# SG Testing something
-
-+ item 1
-+ item 2
+-Working on finding the perfect visualization to display my research information
+-Powerpoint presentation on Wednesday 1st 2015 
+-
