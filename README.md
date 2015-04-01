@@ -8,3 +8,8 @@ The beginning of the idea of what scholars think about video games in history
 
 -Powerpoint presentation on Wednesday 1st 2015 
 
+List of things needed to complete:
+-Email Dr. Graham about the idea of historians and my project
+- Added a graph on profit and add console gaming to the project
+- Paradata
+- Clean up if needed
