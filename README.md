@@ -13,3 +13,6 @@ List of things needed to complete:
 - Added a graph on profit and add console gaming to the project
 - Paradata
 - Clean up if needed
+
+Finalizing Paradata recording Jing video for youtube
+And sending link to prof
